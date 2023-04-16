@@ -5,7 +5,7 @@
 -->
 
 1. I love dancing, and my dance style is waacking.
-2. I am an ambivert.
+2. I am an ambivert, and I have the best of both worlds.
 3. I enjoy reading fictional books.
 4. I have a cat named Mia.
 5. I don't like bitter gourd.
